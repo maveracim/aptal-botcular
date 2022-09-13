@@ -1,4 +1,4 @@
-# Yaw sizin ben aklınızı sikeyim bot çalıyorsunuz bari düzgün altyapı çalın çaldığınız adamlar da botu çalıp editliyor bundan sıkıldım ben elimde olan küçük birkaç ss bırakıyorum ondan sonrası size kalmış kime star atıp atmayacağınızı siz bilirsiniz (: Gidin isim yapmış doğru düzgün botçu bulun. Bu repoyu atıyorum diye 500 grup çekmenize gerek yok bakmıyorum bile mesajlara.
+# Yaw sizin ben aklınızı sikeyim bot çalıyorsunuz bari düzgün altyapı çalın çaldığınız adamlar da botu çalıp editliyor bundan sıkıldım ben elimde olan küçük birkaç ss bırakıyorum ondan sonrası size kalmış kime star atıp atmayacağınızı siz bilirsiniz (: Gidin isim yapmış doğru düzgün botçu bulun. Bu repoyu atıyorum diye 500 grup çekmenize gerek yok bakmıyorum bile mesajlara. Şimdilik bu kadar gerisine yoruldum atarım müsait zamanda ^^
 ![remorn](https://user-images.githubusercontent.com/81289423/189963103-2e98a899-b070-4811-8ea1-4a6aabcbfc28.png)
 ![ravgar2](https://user-images.githubusercontent.com/81289423/189959148-c05398fd-20c3-49d5-a0d2-fb3a6b887dba.png)
 ![ravgar1](https://user-images.githubusercontent.com/81289423/189959155-c80f680f-201a-4f5d-8e5c-87a813dfd731.png)
