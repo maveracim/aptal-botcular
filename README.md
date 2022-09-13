@@ -1,1 +1,1 @@
-# Discordun tüm aptal botçuları toplanmış (:
+# Yaw sizin ben aklınızı sikeyim bot çalıyorsunuz bari düzgün altyapı çalın çaldığınız adamlar da botu çalıp editliyor bundan sıkıldım ben elimde olan küçük birkaç ss bırakıyorum ondan sonrası size kalmış kime star atıp atmayacağınızı siz bilirsiniz (: Gidin isim yapmış doğru düzgün botçu bulun. Bu repoyu atıyorum diye 500 grup çekmenize gerek yok bakmıyorum bile mesajlara.
