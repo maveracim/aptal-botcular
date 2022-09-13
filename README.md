@@ -8,5 +8,6 @@
 ![kwwnsy](https://user-images.githubusercontent.com/81289423/189959287-d8a5a256-7d30-4096-9f47-8f19a16604a9.png)
 ![kwwnsy4](https://user-images.githubusercontent.com/81289423/189959288-52b0ac0c-21a9-4e98-ac64-b96ee0b6dafc.png)
 ![bestcim_botdilen](https://user-images.githubusercontent.com/81289423/189959298-4ce1e09a-34a0-4935-9f03-abe242189bb6.png)
+![kachi](https://user-images.githubusercontent.com/81289423/189966673-c8743fc6-cd89-4318-b3f0-a26fcd105565.png)
 ![ktrialkflwjksjalf](https://user-images.githubusercontent.com/81289423/189963662-5b25b68e-7f27-4d40-80f8-0f0ada7f9372.jpg)
 # Kimseyle düşmanlığım ya da kavgam yok ama yeter milletten çalıp paylaşıyorsunuz onlar da paylaşıyor sıkıldım siktiğimin egonuz ve davranışlarınızdan gidin privinizde takılın.
