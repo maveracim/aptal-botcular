@@ -10,5 +10,5 @@
 ![bestcim_botdilen](https://user-images.githubusercontent.com/81289423/189959298-4ce1e09a-34a0-4935-9f03-abe242189bb6.png)
 ![kachi](https://user-images.githubusercontent.com/81289423/189966673-c8743fc6-cd89-4318-b3f0-a26fcd105565.png)
 ![ktrialkflwjksjalf](https://user-images.githubusercontent.com/81289423/189963662-5b25b68e-7f27-4d40-80f8-0f0ada7f9372.jpg)
-* Pusha denen eşşeğin sslerini bırakmıcam zaten nerde görseniz onun çaldığı altyapılar ifşalanmış durumda :D
+# Pusha denen eşşeğin sslerini bırakmıcam zaten nerde görseniz onun çaldığı altyapılar ifşalanmış durumda :D
 # Kimseyle düşmanlığım ya da kavgam yok ama yeter milletten çalıp paylaşıyorsunuz onlar da paylaşıyor sıkıldım siktiğimin egonuz ve davranışlarınızdan gidin privinizde takılın.
