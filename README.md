@@ -11,6 +11,5 @@
 ![kwwnsy4](https://user-images.githubusercontent.com/81289423/189959288-52b0ac0c-21a9-4e98-ac64-b96ee0b6dafc.png)
 ![bestcim_botdilen](https://user-images.githubusercontent.com/81289423/189959298-4ce1e09a-34a0-4935-9f03-abe242189bb6.png)
 ![kachi](https://user-images.githubusercontent.com/81289423/189966673-c8743fc6-cd89-4318-b3f0-a26fcd105565.png)
-![ktrialkflwjksjalf](https://user-images.githubusercontent.com/81289423/189963662-5b25b68e-7f27-4d40-80f8-0f0ada7f9372.jpg)
-* Pusha denen eşşeğin sslerini bırakmıcam zaten nerde görseniz onun çaldığı altyapılar ifşalanmış durumda :D
+* Pusha denen eleman için de şunu diyeyim botlarını sikinizi atsanız bulursunuz her yerde bayağı da ifşalandı ben atmaya üşendim, kendisi için de şunları diyeyim jaylen owsla karışık gidiyor arkadaş millete rat attığını sanıyor fakat hiç rat atmamış bir eleman abileri falan da yok sizi korkutursa dalga geçin yolunuza devam edin :Dddd
 # Kimseyle düşmanlığım ya da kavgam yok çoğunu da tanımıyorum ama yeter milletten çalıp paylaşıyorsunuz onlar da paylaşıyor sıkıldım siktiğimin egonuz ve davranışlarınızdan gidin privinizde takılın.
