@@ -13,6 +13,7 @@
 ![bestcim_botdilen](https://user-images.githubusercontent.com/81289423/189959298-4ce1e09a-34a0-4935-9f03-abe242189bb6.png)
 ![kachi](https://user-images.githubusercontent.com/81289423/189966673-c8743fc6-cd89-4318-b3f0-a26fcd105565.png)
 ![pusha](https://user-images.githubusercontent.com/81289423/191572604-f2c05eb9-03dc-402f-8df1-bed1105d285e.png)
+![pusha_aaa](https://user-images.githubusercontent.com/81289423/197852968-1bbde911-5630-4697-9ff9-28b021e7300b.png)ĞPLPFĞH
 ![storm1](https://user-images.githubusercontent.com/81289423/193424232-487ec44a-4e7d-415b-a93f-789235a7bc80.png)
 ![storm2](https://user-images.githubusercontent.com/81289423/193424234-fb967e1a-1f5a-48fe-a077-249963590701.png)
 ![storm3](https://user-images.githubusercontent.com/81289423/193424235-fb54b50c-c911-408c-8734-b8fca142e99f.png)
