@@ -22,4 +22,4 @@
 ![cry3](https://user-images.githubusercontent.com/81289423/200164154-a48ce086-8266-4ab7-88b2-a5ec2feab1f6.png)
 ![cry4](https://user-images.githubusercontent.com/81289423/200164152-d1dcf0ea-32b9-4642-87d4-483fd3521e1e.png)
 ![cry5](https://user-images.githubusercontent.com/81289423/200164151-e7b8cc86-5759-4092-87c4-37199584f8bc.png)
-# Kimseyle düşmanlığım ya da kavgam yok çoğunu da tanımıyorum ama yeter milletten çalıp paylaşıyorsunuz onlar da paylaşıyor sıkıldım siktiğimin egonuz ve davranışlarınızdan gidin privinizde takılın. Bu arada yapamadığınız hatayı atabilirsiniz fakat herkese atmayın çünkü 2 gün sonra en küçük olayda bile ss'inizi atıyorlar tanıdığınız ve güvendiğiniz biri yoksa soru sormayın gerekirse forumlarda dolaşın yardımcı olsunlar.
+# Kimseyle düşmanlığım ya da kavgam yok çoğunu da tanımıyorum ama yeter milletten çalıp paylaşıyorsunuz onlar da paylaşıyor sıkıldım siktiğimin egonuz ve davranışlarınızdan gidin privinizde takılın.
