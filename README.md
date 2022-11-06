@@ -17,4 +17,9 @@
 ![storm1](https://user-images.githubusercontent.com/81289423/193424232-487ec44a-4e7d-415b-a93f-789235a7bc80.png)
 ![storm2](https://user-images.githubusercontent.com/81289423/193424234-fb967e1a-1f5a-48fe-a077-249963590701.png)
 ![storm3](https://user-images.githubusercontent.com/81289423/193424235-fb54b50c-c911-408c-8734-b8fca142e99f.png)
+![cry1](https://user-images.githubusercontent.com/81289423/200164148-3f39a2d1-358e-42e4-ace6-e56c53ca6f4d.png)
+![cry2](https://user-images.githubusercontent.com/81289423/200164150-013f1c10-7d6f-4d77-88bc-8d0d01554b66.png)
+![cry3](https://user-images.githubusercontent.com/81289423/200164154-a48ce086-8266-4ab7-88b2-a5ec2feab1f6.png)
+![cry4](https://user-images.githubusercontent.com/81289423/200164152-d1dcf0ea-32b9-4642-87d4-483fd3521e1e.png)
+![cry5](https://user-images.githubusercontent.com/81289423/200164151-e7b8cc86-5759-4092-87c4-37199584f8bc.png)
 # Kimseyle düşmanlığım ya da kavgam yok çoğunu da tanımıyorum ama yeter milletten çalıp paylaşıyorsunuz onlar da paylaşıyor sıkıldım siktiğimin egonuz ve davranışlarınızdan gidin privinizde takılın. Bu arada yapamadığınız hatayı atabilirsiniz fakat herkese atmayın çünkü 2 gün sonra en küçük olayda bile ss'inizi atıyorlar tanıdığınız ve güvendiğiniz biri yoksa soru sormayın gerekirse forumlarda dolaşın yardımcı olsunlar.
