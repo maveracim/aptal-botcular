@@ -30,4 +30,4 @@
 ![cry4](https://user-images.githubusercontent.com/81289423/200164152-d1dcf0ea-32b9-4642-87d4-483fd3521e1e.png)
 ![cry5](https://user-images.githubusercontent.com/81289423/200164151-e7b8cc86-5759-4092-87c4-37199584f8bc.png)
 # Kimseyle düşmanlığım ya da kavgam yok çoğunu da tanımıyorum ama yeter milletten çalıp paylaşıyorsunuz onlar da paylaşıyor sıkıldım siktiğimin egonuz ve davranışlarınızdan gidin privinizde takılın.
-[![23.11.2022'den itibaren stalklayan kişi](https://views.hectane.com/velusgautam/views.svg)](https://views.hectane.com/)
+[![23.11.2022den itibaren stalklayan kişi](https://views.hectane.com/velusgautam/views.svg)](https://views.hectane.com/)
