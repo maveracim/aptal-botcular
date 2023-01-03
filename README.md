@@ -1,4 +1,4 @@
-# Yaw sizin ben aklınızı sikeyim bot çalıyorsunuz bari düzgün altyapı çalın çaldığınız adamlar da botu çalıp editliyor bundan sıkıldım ben elimde olan küçük birkaç ss bırakıyorum ondan sonrası size kalmış kime star atıp atmayacağınızı siz bilirsiniz (: Gidin isim yapmış doğru düzgün botçu bulun. Bu repoyu atıyorum diye 500 grup çekmenize gerek yok bakmıyorum bile mesajlara. Şimdilik bu kadar gerisine yoruldum atarım müsait zamanda ^^
+# Bot aldığınız/yaptırdığınız adamlara dikkat edin.
 ![remorn](https://user-images.githubusercontent.com/81289423/189963103-2e98a899-b070-4811-8ea1-4a6aabcbfc28.png)
 ![ramal1](https://user-images.githubusercontent.com/81289423/200165152-2281abc9-a289-4eb2-bcce-05d1baf72792.png)
 ![ramal5](https://user-images.githubusercontent.com/81289423/200355131-78bae729-b92c-4d0b-923a-48c2193e417e.png)
